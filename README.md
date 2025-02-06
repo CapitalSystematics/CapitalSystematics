@@ -6,7 +6,7 @@
 
 **Reviews on Capital Systematics**  
 
-Before starting cooperation, it is essential to study real user opinions. Various reviews of Capital Systematics can be found on thematic platforms such as **[Blogspot](https://capitalsystematics.blogspot.com/2025/02/capital-systematics-reviews-and.html), [HackMD](https://hackmd.io/IVD16ZM-TPOisjOMpY_gZg), Medium**.  
+Before starting cooperation, it is essential to study real user opinions. Various reviews of Capital Systematics can be found on thematic platforms such as **[Blogspot](https://capitalsystematics.blogspot.com/2025/02/capital-systematics-reviews-and.html), [HackMD](https://hackmd.io/IVD16ZM-TPOisjOMpY_gZg), [Medium](https://capitalsystematics.medium.com/capital-systematics-reviews-an-international-broker-with-investment-opportunities-e99a69ae9999)**.  
 
 Key advantages noted by users include **reliability and transparency**, as the company is regulated by **FCA (UK)**, **flexible trading conditions** such as floating spreads, market execution of orders, and user-friendly platforms, **a variety of investment opportunities** including trading signals, analytics, and support from personal managers, and **high-quality customer support** that helps with platform setup and resolving issues.  
 
